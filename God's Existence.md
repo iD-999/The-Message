@@ -14,5 +14,6 @@ This is the world;  Some call it a matrix;
 \[∞\]:  Infinite Space;  
 
 # The First Language
-![[20250213_194616.png]]
+![20250213_194616](https://github.com/user-attachments/assets/d620ddbe-a630-4c26-bd6b-4d246df28cc1)
+
 **Figure 1**: *(This is roughly what my feelings told me.)*
