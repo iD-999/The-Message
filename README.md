@@ -1,2 +1,2 @@
-# True-Harmony
+# The true harmony
 Anything is possible.
