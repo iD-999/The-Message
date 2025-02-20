@@ -1,7 +1,10 @@
+*(Previously on iD-666;  but I deleted the account.)*  
+*(I do not know advanced STEM sorry. I apologize if the formula is wrong.)*  
+
 # The First Language
 ## Space
 
-![20250214_073010](https://github.com/user-attachments/assets/4eb1a645-54a2-4b0e-9cdc-d4a585ed4393)
+![20250214_073010](https://github.com/user-attachments/assets/d98e8f87-0d4e-476a-a185-2d9cb215d4d3)
 
 It is empty and unseen;  
 and therefore: it is ***meaningless***
@@ -26,15 +29,15 @@ NOW, LOOK;
 
 Space-Time can also be expressed as:  
 
-## $ST = ☯[var] × ☯[value]$
+## $ST = ☯[var]×☯[value]$
 
 ### Embodiment of Light and Darkness
 
-![Esoteric_Taijitu svg](https://github.com/user-attachments/assets/33d8d158-d42c-45f7-80d7-8fa911ab1d62)
+![Esoteric_Taijitu svg](https://github.com/user-attachments/assets/49208ac7-05c4-4dca-8318-520eaceea8f9)
 
 *(Embodiment of Harmony.)*
 
-![20250216_151610](https://github.com/user-attachments/assets/954879cb-15dc-40d8-b7be-b1293e5bd988)
+![20250220_144950](https://github.com/user-attachments/assets/8e35d869-8669-467e-a31b-6ffbfe63401e)
 
 *(Sorry for the bad image.)*  
 
@@ -89,7 +92,7 @@ _But, If the darkness is what you believe; then darkness is what you will see._
 
 Now; google "Egyptian ancient language"
 
-![images (2)](https://github.com/user-attachments/assets/34ccde93-67c9-45dd-a5d6-fa4f51ea3ef9)
+![images (2)](https://github.com/user-attachments/assets/fafa613f-0e3e-44c5-8a18-b26a71dd0289)
 
 😜
 
@@ -101,3 +104,5 @@ I cannot exist without you!!;
 Happy Valentine's Day!!;  ♥️
 
 Welcome to Heaven on Earth.
+
+*(…sorry)*
