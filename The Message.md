@@ -3,7 +3,7 @@
 
 # Proof of God's Existence
 Is this a lie?  
-No, it is not a lie. But it's up to you to decide for yourself…  
+No, it is not a lie.  
 
 And I know I'm playing in a dangerous territory here;  
 but if this is a small chance for a global peace;  
