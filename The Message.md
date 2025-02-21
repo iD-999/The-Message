@@ -46,7 +46,7 @@ I wrote this based on my "feelings":
 
 ___
 ![67b60578750a9750087daf1c](https://github.com/user-attachments/assets/10f97d5f-c7ec-4ad4-9cc4-2e12bcba128e)  
-**Figure 3**: Egyptian Ancient Language  
+**Figure 3**: [Egyptian Ancient Language](https://web.archive.org/web/20250221080234/https://en.m.wikipedia.org/wiki/Egyptian_language)  
 - ![hiero_D21](https://github.com/user-attachments/assets/a3a69ec1-37d4-4b02-ade5-3bff9e8687fc)
  — Eye/Light/Sight?  
 - ![hiero_Z1](https://github.com/user-attachments/assets/7bb75178-bab2-43e8-92d4-d41c1592be99) — Singularity/Particle?  
