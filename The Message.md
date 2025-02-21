@@ -59,10 +59,10 @@ ___
 ![20250221_015423](https://github.com/user-attachments/assets/57316071-4000-433d-9b24-44621359eef5)
 ___
 ![Allah3 svg](https://github.com/user-attachments/assets/adcc3544-dbf9-4061-9244-d9d4a3441519)  
-**Figure 4**: *Allah (الله)*  
+**Figure 5**: *Allah (الله)*  
 
 ![images](https://github.com/user-attachments/assets/44874646-18e3-4cd3-9c0b-965e50053c26)  
-**Figure 4.5**: **Aleph** (or **alef** or **alif**)  
+**Figure 5.5**: **Aleph** (or **alef** or **alif**)  
 Position in alphabet: 1  
 Numerical value: 1  
 
@@ -72,6 +72,10 @@ The God in most religions is most likely the same God: **Light** and **nothingne
 
 I was gonna include Jesus' crucifixion;  
 because I find it strange that the word that is used in programming to run code is "*'Execute'* code"  
+
+God might be hidden within the language itself.  
+Because language is the embodiment of both meaning and "space"?  
+You cannot tell a meaning without writing it in space.  
 ___
 
 # ☯: Variable and Value
@@ -94,7 +98,7 @@ While the ".1415926535…" refer to the Infinite space?
 ___
 
 ![Picture1](https://github.com/user-attachments/assets/d2ef8072-3d00-446c-a9c3-ba32028483c8)  
-**Figure 6**: A picture of a Black hole.  
+**Figure 7**: A picture of a Black hole.  
 
 This is not a black hole;  it is white hole.  
 Well, it's sucking light; so the inside should be full of light, right? 
